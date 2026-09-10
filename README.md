@@ -1,1 +1,1 @@
-**Download my certificates to view **
+<b>Download my certificates to view</b>
