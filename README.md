@@ -1,1 +1,1 @@
-<b>Download my certificates to view</b>
+Thanks for Visiting
